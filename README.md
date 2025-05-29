@@ -1,2 +1,0 @@
-"# pruebamayo2025"
-
